@@ -4,8 +4,8 @@ TO-DO:
 
 | Nome do Partido| Programa | Responsável | Status |   |
 |-------------------------------------------------|-----------------------------------------------------------------------------------------------------|-------------|--------|---|
-| Aliança                                         | https://partidoalianca.pt/wp-content/uploads/2019/07/PROGRAMA-BASE-ALIAN%C3%87A-JULHO-2019-1.pdf    |             |        |   |
-| Bloco de Esquerda                               | https://programa2019.bloco.org/images/programa-com-fotos.pdf                                        |             |        |   |
+| Aliança                                         | [Link](https://partidoalianca.pt/wp-content/uploads/2019/07/PROGRAMA-BASE-ALIAN%C3%87A-JULHO-2019-1.pdf)    |             |        |   |
+| Bloco de Esquerda                               | [Link](https://programa2019.bloco.org/images/programa-com-fotos.pdf)                                        |             |        |   |
 | CDS - Partido Popular                           | https://fazsentido.cds.pt/assets/programaeleitoral_legislativascds19.pdf                            | Nuno C.     | WIP    |   |
 | CHEGA                                           |                                                                                                     |             |        |   |
 | Iniciativa Liberal                              |                                                                                                     |             |        |   |
