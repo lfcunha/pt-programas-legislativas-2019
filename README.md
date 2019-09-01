@@ -1,7 +1,8 @@
 # pt-programas-legislativas-2019
 
 TO-DO:
-| Nome do Partido                                 | Programa                                                                                            | Responsável | Status |   |
+
+| Nome do Partido| Programa | Responsável | Status |   |
 |-------------------------------------------------|-----------------------------------------------------------------------------------------------------|-------------|--------|---|
 | Aliança                                         | https://partidoalianca.pt/wp-content/uploads/2019/07/PROGRAMA-BASE-ALIAN%C3%87A-JULHO-2019-1.pdf    |             |        |   |
 | Bloco de Esquerda                               | https://programa2019.bloco.org/images/programa-com-fotos.pdf                                        |             |        |   |
