@@ -1,5 +1,9 @@
 # pt-programas-legislativas-2019
 
+Um repositório dos programas eleitorais para as eleições legislativas de 2019, em versão Markdown para serem utilizados na plataforma que está a ser construída em www.politicaparatodos.pt
+
+A disponibilização dos programas num formato standard permitirá também que se façam análises de texto interessantes, bem como manter um arquivo para consulta futura.
+
 TO-DO:
 
 | Nome do Partido| Programa | Responsável | Status |   |
