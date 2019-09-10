@@ -8,7 +8,7 @@ TO-DO:
 
 | Nome do Partido| Programa | Responsável | Status |   |
 |-------------------------------------------------|-----------------------------------------------------------------------------------------------------|-------------|--------|---|
-| Aliança                                         | [Link](https://partidoalianca.pt/wp-content/uploads/2019/07/PROGRAMA-BASE-ALIAN%C3%87A-JULHO-2019-1.pdf)    | Luis C. | WIP |   |
+| Aliança                                         | [Link](https://partidoalianca.pt/wp-content/uploads/2019/07/PROGRAMA-BASE-ALIAN%C3%87A-JULHO-2019-1.pdf) , [Novo Link Set. 2019](https://partidoalianca.pt/wp-content/uploads/2019/09/PROGRAMA-FINAL.pdf)   | Luis C. | WIP |   |
 | Bloco de Esquerda                               | [Link](https://programa2019.bloco.org/images/programa-com-fotos.pdf)                                        |  Luis C. | WIP |   |
 | CDS - Partido Popular                           | [Link](https://fazsentido.cds.pt/assets/programaeleitoral_legislativascds19.pdf)                            | Nuno C.     | WIP    |   |
 | CHEGA                                           |                                                                                                     |             |        |   |
