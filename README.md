@@ -12,7 +12,7 @@ TO-DO:
 | Bloco de Esquerda                               | [Link](https://programa2019.bloco.org/images/programa-com-fotos.pdf)                                        |  Luis C. | WIP |   |
 | CDS - Partido Popular                           | [Link](https://fazsentido.cds.pt/assets/programaeleitoral_legislativascds19.pdf)                            | Nuno C.     | WIP    |   |
 | CHEGA                                           | [Link](https://partidochega.pt/wp-content/uploads/2019/09/PROGRAMA_POL%C3%8DTICO_2019_CHEGA-2.pdf)                                                                                                   |             |        |   |
-| Iniciativa Liberal                              | [Link]( https://portugal.liberal.pt/asset/5:iniciativa-liberal---programa-politico)                                                                                                   |             |        |   |
+| Iniciativa Liberal                              |                                                                                                   |             |        |   |
 | Juntos pelo Povo                                |                                                                                                     |             |        |   |
 | LIVRE                                           | [Link](https://partidolivre.pt/legislativas2019/programa)                                                   | Vasco P. | WIP |   |
 | Movimento Alternativa Socialista                |                                                                                                     |             |        |   |
