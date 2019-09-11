@@ -11,8 +11,8 @@ TO-DO:
 | Aliança                                         | [Link](https://partidoalianca.pt/wp-content/uploads/2019/07/PROGRAMA-BASE-ALIAN%C3%87A-JULHO-2019-1.pdf) , [Novo Link Set. 2019](https://partidoalianca.pt/wp-content/uploads/2019/09/PROGRAMA-FINAL.pdf)   | Luis C. | WIP |   |
 | Bloco de Esquerda                               | [Link](https://programa2019.bloco.org/images/programa-com-fotos.pdf)                                        |  Luis C. | WIP |   |
 | CDS - Partido Popular                           | [Link](https://fazsentido.cds.pt/assets/programaeleitoral_legislativascds19.pdf)                            | Nuno C.     | WIP    |   |
-| CHEGA                                           |                                                                                                     |             |        |   |
-| Iniciativa Liberal                              |                                                                                                     |             |        |   |
+| CHEGA                                           | [Link](https://partidochega.pt/wp-content/uploads/2019/09/PROGRAMA_POL%C3%8DTICO_2019_CHEGA-2.pdf)                                                                                                   |             |        |   |
+| Iniciativa Liberal                              | [Link]( https://portugal.liberal.pt/asset/5:iniciativa-liberal---programa-politico)                                                                                                   |             |        |   |
 | Juntos pelo Povo                                |                                                                                                     |             |        |   |
 | LIVRE                                           | [Link](https://partidolivre.pt/legislativas2019/programa)                                                   | Vasco P. | WIP |   |
 | Movimento Alternativa Socialista                |                                                                                                     |             |        |   |
