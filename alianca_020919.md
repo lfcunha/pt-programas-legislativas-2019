@@ -188,7 +188,7 @@ A **_ALIANÇA_** propõe:
 - Aumento das deduções das despesas de saúde e educação em sede de IRS; Mais apoio às Famílias com filhos portadores de deficiência; Criação de mais equipamentos para a primeira infância em articulação com as Autarquias e o terceiro sector, alargando a rede de ATL.
 
 
-###COESÃO TERRITORIAL, DESCENTRALIZAÇÃO E FERROVIA
+### COESÃO TERRITORIAL, DESCENTRALIZAÇÃO E FERROVIA
 **PORTUGAL SOMOS TODOS**
 
 Queremos enfrentar e contrariar a desertificação, o despovoamento do território e o abandono do Interior, seja através de políticas fiscais incentivadoras do investimento em territórios despovoados, seja através da descentralização de entidades e serviços, aproveitando as oportunidades oferecidas pela “era do digital” que permite hoje ultrapassar as barreiras da distância física e derrubar constrangedores entraves burocráticos. O policentrismo das instituições de ensino superior e as economias geradas em seu redor são um bom exemplo do caminho que deve ser prosseguido para fixar as novas gerações nos seus territórios de origem. O Estado tem de assumir a responsabilidade de promover o desenvolvimento e a qualidade de vida em todo o seu território e assim propomos:
@@ -898,7 +898,7 @@ A *ALIANÇA* defende as seguintes medidas para as políticas públicas de empreg
 + Incentivar nas Empresas e no Estado à requalificação dos jovens e trabalhadores promovendo a sua adequação e competências às necessidades do posto de trabalho, desencorajando o desemprego.
 
 
-
+# CAPITULO II
 # POLÍTICAS SOCIAIS E DE BEM ESTAR
 
 
@@ -1145,9 +1145,8 @@ Estes números são só por si suficientes para justificar a adoção de uma pol
 
 + Promover políticas que fomentem o acesso à habitação através de arrendamento a preços controlados e a aquisição de casa para habitação própria e permanente, através da isenção do IMT, em condições e limites a definir em função do local e da situação económica do contribuinte, reforçando o acesso à emancipação, valor importante para a assunção de responsabilidades, constituição de família e de integração completa na vida em sociedade.
 
-
+# CAPITULO III
 # EDUCAÇÃO, CONHECIMENTO E INOVAÇÃO
-
 
 ### EDUCAÇÃO E O ENSINO SUPERIOR
 
@@ -1346,7 +1345,7 @@ A evolução das diversas instâncias de escrutínio público, que vão desde os
 
 A língua Portuguesa é fator de união, sem tergiversações paternalistas anacrónicas, aque importa incentivar e promover através de todas as plataformas e redes de comunicação social e cultural.
 
-
+# CAPITULO IV
 # ESTADO E SOBERANIA
 
 ### CONSTITUIÇÃO DO SISTEMA DE GOVERNO E DO SISTEMA ELEITORAL
