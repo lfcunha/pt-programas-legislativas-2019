@@ -19,7 +19,7 @@ TO-DO:
 | Nós, Cidadãos!                                  |                                                                                                     |             |        |   |
 | Partido Cidadania e Democracia Cristã           |                                                                                                     |             |        |   |
 | Partido Comunista dos Trabalhadores Portugueses |                                                                                                     |             |        |   |
-| Partido Comunista Português                     | [Link](http://www.pcp.pt/sites/default/files/documentos/201907_programa_eleitoral_pcp_legislativas2019.pdf) |        Diogo C.     |  WIP      |   |
+| Partido Comunista Português                     | [Link](http://www.pcp.pt/sites/default/files/documentos/201907_programa_eleitoral_pcp_legislativas2019.pdf), [Novo Link] (https://www.cdu.pt/2019/pdf/programa_eleitoral_pcp.pdf) |        Diogo C.     |  WIP      |   |
 | Partido da Terra                                |                                                                                                     |             |        |   |
 | Partido Democrático Republicano                 |                                                                                                     |             |        |   |
 | Partido Ecologista "Os Verdes"                  | [Link](http://www.osverdes.pt/media/Legislativas_2019/12_compromissos_Legislativas2019_PEV.pdf)| Tiago S. | DONE   |   |
