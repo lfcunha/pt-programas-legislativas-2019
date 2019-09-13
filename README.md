@@ -28,7 +28,7 @@ TO-DO:
 | Partido Operário de Unidade Socialista          |                                                                                                     |             |        |   |
 | Partido Popular Monárquico                      |                                                                                                     |             |        |   |
 | Partido Social Democrata                        | [Link](https://app.box.com/s/x8mh7ycebkpityah14hj6awgue3v0e9j)                                              | Nuno C. e Vasco P.    | DONE |   |
-| Partido Socialista                              | [Link](https://www.ps.pt/programa-eleitoral-ps-legislativas2019.pdf)                                        | Tiago S.    | 50%    |   |
+| Partido Socialista                              | [Link](https://www.ps.pt/programa-eleitoral-ps-legislativas2019.pdf)                                        | Tiago S.    | DONE    |   |
 | Partido Trabalhista Português                   |                                                                                                     |             |        |   |
 | Partido Unido dos Reformados e Pensionistas     |                                                                                                     |             |        |   |
 | PESSOAS-ANIMAIS-NATUREZA                        | [Link](https://pan.com.pt/eleicoes/eleicoes-legislativas-2019/programa-eleitoral/)                          | Tiago S.    | DONE   |   |
