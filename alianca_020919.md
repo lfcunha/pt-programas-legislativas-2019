@@ -32,8 +32,8 @@ Nesse sentido, a *ALIANÇA* delineou o seu **PROGRAMA ELEITORAL** com os seguin
 - **Iniciativa Provada**/Empresas e Sociedade Civil- motores da atividade económica e social
 - **Diminuição da Despesa do Estado** – um Estado eficiente e que atue onde é verdadeiramente necessário.
 - Criação de **mais riqueza** – condição para se atingir o nível de vida médio europeu.
-- Princípio da solidariedade** e da inclusão social.
-- Moralização e **qualificação do sistema político.
+- Princípio da solidariedade e da **inclusão social**.
+- Moralização e **qualificação** do sistema político.
 - Sistema de ensino assente na exigência e nos desafios das **novas tecnologias**.
 - **Coesão territorial** (equilíbrio e equidade na gestão do território).
 - **Iniciativa privada** e empresas – motores da atividade económica.
@@ -59,7 +59,7 @@ Não queremos ser uma ilha na Europa, quando devemos ser a sua principal porta d
 
 **Queremos** uma nação mais jovem, mais saudável, mais culta e qualificada. Que desde cedo, na escola, seja incentivada a ter **vidas saudáveis**, a praticar deporto e a dedicar-se à cultura e às artes, num modelo educativopluridisciplinar que aposte no **desenvolvimento pessoal, criativo e empreendedor**.
 
-Queremos uma sociedade onde as gerações mais jovens se interessem pelos grandes temas da atualidade, motivando-os a participar na construção de uma** sociedade mais preparada e inclusiva**, assente em bons valores e tentar reverter assim a mediocridade em que está imersa a atividade política.
+Queremos uma sociedade onde as gerações mais jovens se interessem pelos grandes temas da atualidade, motivando-os a participar na construção de uma **sociedade mais preparada e inclusiva**, assente em bons valores e tentar reverter assim a mediocridade em que está imersa a atividade política.
 
 **Queremos** um país exemplar no **combate às alterações climáticas e na defesa do ambiente**, através da descarbonização progressiva, da aposta na economia circular e na adoção de um novo paradigma de consumo mais sustentável que evite o desperdício e privilegie a reutilização.
 
@@ -1637,7 +1637,6 @@ A Europa da liberdade, da solidariedade e da igualdade de oportunidades, deve se
 
 + Afirmar a importância da cidadania europeia, partilhando a mesma com a cidadania nacional, o que permite a cada cidadão conhecer os seus direitos e exercê-los de forma plena e sem constrangimentos.
 
-+ Aproximar os eleitores da realidade europeia, defendendo uma maior participação nas
-eleições para o Parlamento Europeu e aproximando os eleitos europeus dos cidadãos
-nacionais.
++ Aproximar os eleitores da realidade europeia, defendendo uma maior participação nas eleições para o Parlamento Europeu e aproximando os eleitos europeus dos cidadãos nacionais.
+
 A política europeia não deve ser um jogo de soma zero, em que os equilíbrios se compensam, mas um espaço solidário e de promoção do desenvolvimento em todos os territórios. Portugal assume uma relevância significativa no contexto da política europeia e internacional. Importa ter uma visão estratégica que permita antecipar os desafios e traçar linhas de ação que defendam os nossos interesses e reforcem a nossa identidade e soberania nacionais.
