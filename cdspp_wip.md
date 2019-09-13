@@ -698,3 +698,276 @@ social.
 
 A vida de muitas famílias está condicionada pelo calendário escolar, sendo que uma das dificuldades referida pelos pais é a conciliação entre a sua vida profissional e a ocupação dos filhos durante as pausas letivas. Ressalvando que não haverá uma solução universalmente perfeita, o CDS entende necessário estudar e discutir o valor de outras soluções organizativas, porventura capazes de dar melhor resposta às questões de conciliação família-trabalho.
 
+## 8. MAIS CONDIÇÕES PARA QUEM CUIDA DA FAMÍLIA
+
+Um Portugal dinâmico não pode deixar ninguém para trás. Precisamos de reforçar a capacidade de apoio domiciliário, consolidando os apoios existentes e facilitando o acesso à informação acerca dos apoios sociais a que se tem direito – a partir desse esforço de transparência, o Estado poderá começar também a fazer um trabalho de simplificação e consolidação destes apoios.
+
+### 8.1. Tantos apoios, tantas possibilidades, e tão pouca informação
+
+Criaremos um Portal da Família que sumarize, de forma simples, todos os apoios que um família pode obter ou a que se pode candidatar. É inconcebível que famílias estejam privadas de apoios existentes, apenas porque os desconhecem.
+
+Por outro lado, temos de simplificar o acesso a prestações e apoios. Prestações mais simples são mais acessíveis e permitem melhor fiscalização.
+
+### 8.2. Um regime de faltas ao trabalho para quem cuida dos pais
+
+Em sede de concertação social, negociaremos a aprovação de um regime de faltas ao trabalho para prestar assistência inadiável e imprescindível a ascendentes.
+
+### 8.3. Horários de trabalho adaptados a quem cuida dos pais
+
+Em sede de concertação social, negociaremos a aprovação de um regime redução do tempo de trabalho, ou de trabalho a tempo parcial, para assistência a ascendente com deficiência ou doença crónica. Igualmente, negociaremos a aprovação de um regime de horário flexível de trabalhador com responsabilidades familiares para com ascendentes.
+
+#### 8.3.1. Cuidador Informal: passar da teoria à práticas
+
+Depois de muito trabalho e por iniciativa política do CDS, que primeiro colocou o tema em cima da mesa, foi aprovado um Estatuto do Cuidador. Poder-se-ia ter ido mais longe, e continuaremos a bater-nos por alterações que reforcem esse Estatuto, mas é agora imperioso garantir que ele sai do papel, e que é concretizado e executado na realidade.
+
+#### 8.3.2. Os cuidadores informais precisam de ser discriminados positivamente no IRS
+
+Além de encargos com saúde maiores que a norma, os cuidadores informais veem os seus rendimentos penalizados por absentismo ou dificuldade de progressão na carreira. Queremos discriminar positivamente os cuidadores informais em sede IRS, aumentando as suas deduções com saúde e atos médicos.
+
+### 8.4. Uma rede de cuidadores para que não haja idosos isolados
+
+Em cooperação com as autarquias, dinamizaremos, com os organismos públicos e privados que já atuam no apoio aos idosos, a criação de uma rede de cuidadores por todo o território, com um objetivo comum – o de que não haja em Portugal um idoso isolado ou sem apoio.
+
+### 8.5. Reforçaremos o sistema de proteção de crianças e jovens em risco
+
+No âmbito da promoção dos direitos e de proteção das crianças e jovens em risco reforçaremos a reforma do sistema à luz do princípio de que toda a criança tem direito a uma família, priorizando as medidas em meio natural de vida, nomeadamente junto dos pais ou de outro familiar. Será também relançado o apadrinhamento civil e as famílias amigas para crianças institucionalizadas.
+
+### 8.6. Mais justiça no abono de família por deficiência
+
+A bonificação por deficiência é um acréscimo ao abono de família que não prevê qualquer diferenciação no pagamento entre os 3 escalões existentes. Entendemos que a prestação social da bonificação por deficiência deve manter a discriminação positiva das famílias com menores rendimentos, com o mesmo escalonamento existente no abono de família, por forma a mitigar os custos acrescidos que a deficiência provoca no orçamento das famílias.
+
+### 8.7. Liberdade de escolha na educação de filhos com deficiência
+
+Garantiremos o direito dos pais de crianças com deficiência a escolher a educação que querem para seus filhos e promoveremos a formação de professores no conhecimento das necessidades das pessoas com deficiência.
+
+### 8.8. Uma rede de apoio às famílias
+
+Com exceção do apoio às famílias em risco psicossocial, o sistema de segurança social não oferece respostas para quem procure orientação para gerir dificuldades na educação dos seus filhos ou para lidar com situações de crise familiar. O Estado não deve nem pode substituir-se às escolhas dos cidadãos no que se refere às suas decisões s, mas pode disponibilizar a assistência adequada, integrando gabinetes de apoio familiar na rede protocolar social.
+
+## 9. ENCONTRAR CASA NÃO TEM DE SER UM QUEBRA-CABEÇAS
+
+Um país dinâmico tem de atrair residentes, empresas, estudantes e turistas. É a presença deste ecossistema que torna as cidades atrativas e produtivas, onde uma enorme diversidade de projetos concorre pelos mesmos espaços. E, claro, é um ecossistema que aumenta a procura de casas e, com isso, concorre com todas as famílias que gostariam de encontrar uma casa boa e a preços comportáveis.
+
+Este ecossistema não vai desaparecer: faz parte da integração de Portugal no mundo.
+
+Assim, para facilitar o acesso à habitação a preços razoáveis, a solução é clara: é preciso aumentar a oferta de habitação.
+
+### 9.1. O direito de propriedade é um princípio estruturante das nossas políticas
+
+O CDS coloca o direito de propriedade no centro das políticas públicas de habitação, e rejeita qualquer reforma ou política que, a pretexto de justiça social, viole ou mitigue tal direito.
+
+Uma sociedade sem direito de propriedade é uma sociedade que não tem nada a perder, é uma sociedade menos autónoma, é uma sociedade menos criativa: é uma sociedade que não controla o seu próprio destino.
+
+### 9.2. O Estado pode fazer muito mais pelo aumento da oferta
+
+É incompreensível que, num momento em que os preços da habitação sobem, o Estado, enquanto grande proprietário, contribua para a escassez da oferta. Exemplos como o dos terrenos da antiga Feira Popular, no centro de Lisboa, numa zona onde pode ser criada oferta de forma relativamente flexível, não podem acontecer.
+
+A capacidade de intervenção e negociação do Estado deverá ser utilizada para que sejam disponibilizadas áreas de intervenção para construção ou reabilitação a preços atrativos às Instituições Particulares de Solidariedade Social, cooperativas de habitação e empresas de construção privadas.
+
+#### 9.2.1. O património imobiliário do Estado tem de estar no mercado
+
+Queremos disponibilizar a maior quantidade possível de edifícios públicos, do Estado central ou dos municípios, para que sejam transformados em apartamentos.
+
+Esses edifícios podem ser colocados no mercado para habitação. Tal poderá acontecer de três formas:
+
+* a) Através de contratos de arrendamento;
+* b) Através de rendas resolúveis, um regime jurídico em que o inquilino é em simultâneo potencial proprietário, uma vez que o valor da renda no total do contrato equivale à aquisição do imóvel.
+* c) Através de venda, com a condição de uso obrigatório para habitação durante um período pré-definido.
+
+#### 9.2.2. Vamos criar um portal unificado para o património imobiliário do Estado
+
+O Estado não faz saber aos cidadãos que os seus terrenos, edifícios e propriedades, estariam disponíveis para um fim socialmente mais útil. É fundamental desenvolver mecanismos que combatam a assimetria de informação relativa ao património do Estado, para consequentemente estimular uma maior oferta e contribuir para um ambiente de preços tendencialmente mais baixos e maior disponibilidade habitacional.
+
+### 9.3. Vamos reduzir o tempo que se leva a construir ou reabilitar
+
+Tempos de aprovação longos e incertos aumentam os custos da habitação (a começar pelos custos de financiamento) pelo simples facto de aumentarem ainda mais o risco de investidores e promotores imobiliários.
+
+#### 9.3.1. Temos de rever os diplomas legais aplicáveis à construção e à reabilitação
+
+Queremos rever a legislação e regulamentação aplicável a todas as operações urbanísticas que dificultam a criação de nova oferta ou de reabilitação já existente. É fundamental atualizar diplomas antiquados, que já não fazem sentido pela sua rigidez e porque se vive de outra maneira.
+
+#### 9.3.2. Desburocratizar é urgente
+
+Será desenvolvida uma agenda de desburocratização que passe pela redução do número de níveis hierárquicos necessário à aprovação de operações urbanísticas, pela redução do número de entidades consultadas nas operações urbanísticas, pela redução do número de conceitos abertos e indeterminados na legislação e regulamentação urbanística.
+
+Sem prejuízo da autonomia municipal, simplificaremos o processo de licenciamento, criando um formulário estandardizado para todos os municípios, um quadro tipificado com os requisitos a cumprir nos projetos de obra e criando ferramentas de submissão online de documentação.
+
+#### 9.3.3. Dilataremos o perímetro das Áreas de Reabilitação Urbana (ARU)
+
+As ARU definem zonas com regras definidas para facilitar o processo de reabilitação urbana e premiar as obras de reabilitação, pelo que todo o processo de licenciamento é (ou devia ser) mais rápido e simples. Queremos em concertação com os municípios e as CCDR acentuar esta simplificação, aceitando o maior número possível de Comunicações Prévias e transferindo as responsabilidades dos projetos, como a lei já prevê, para os projetistas e os promotores.
+
+### 9.4. Temos de reduzir os custos impostos por lei do que se constrói ou reabilita
+
+Requisitos mínimos, limiares máximos, normas técnicas, etc. custam dinheiro. Muitas destas imposições administrativas não têm qualquer relação com o que o mercado procura, mas têm um impacto no preço que residentes atuais e potenciais pagam. Sem mexer aqui, não estaremos a criar condições para baixar preços.
+
+#### 9.4.1. Uma agenda de redução de custos de contexto
+
+Será desenvolvida uma agenda de eliminação de custos de contexto urbanísticos que reduza drasticamente o número de imposições administrativas e taxas na construção, alteração ou ampliação de cada tipo de utilização de espaço (habitacional, comercial, etc.)
+
+#### 9.4.2. Repensar o que é obrigatório
+
+Tornaremos facultativas, em vez de obrigatórias, as regras que encarecem a construção a um ponto que ultrapassa o benefício desejado.
+
+### 9.5. É possível flexibilizar
+
+Impedir a adaptação dos espaços à procura aumenta o risco dos investimentos e diminui o seu retorno. O imobiliário é por natureza relativamente inflexível, mas quando essa inflexibilidade é exponenciada pela lei, as cidades não se conseguem adaptar a quem quer viver nelas.
+
+#### 9.5.1. Vamos flexibilizar alterações de utilização dos espaços
+
+Desde flexibilizar os requisitos exigidos a cada tipo de utilização, até reduzir os entraves à aprovação de planos de pormenor ou de urbanização que adaptem pontualmente regras dos PDM, todas estas alterações teriam impactos positivos na capacidade de adaptação da oferta imobiliária às necessidades das famílias.
+
+#### 9.4.2. Vamos flexibilizar a oferta habitacional
+
+Vamos flexibilizar as áreas exigidas às habitações, permitindo que essa definição, a ser feita, seja feita ao nível local, tendo em conta a realidade do mercado de cada concelho.
+
+### 9.6. Mais transparência na regulação
+
+Precisamos de mais transparência nas normas de construção: num aspeto que é tão essencial no desenvolvimento das cidades, é incompreensivelmente difícil encontrar as regulações municipais sobre novas construções.
+
+#### 9.6.1. Um E-PDM
+
+Precisamos de simplificar o acesso às normas de construção e aos mapas determinados pelas autarquias.
+
+Através de um mapa acessível que disponibilize e facilite o acesso às regulações municipais sobre a construção, estimularemos a competição entre as autarquias e ajudaremos na concretização da escolha dos locais para nova construção.
+
+#### 9.6.2. Avaliar e medir a evolução do impacto regulatório
+
+Serão criados indicadores, em parceria com a academia, que permitam avaliar e medir a evolução do impacto regulatório no preço da habitação, identificando o que é responsabilidade do Município e aquilo que é responsabilidade do Governo.
+
+Estes indicadores serão essenciais para guiar uma agenda de redução do “imposto” regulatório em percentagem dos custos de construção.
+
+#### 9.6.3. Orçamentos regulatórios
+
+Desenvolveremos o enquadramento necessário para a elaboração de “orçamentos regulatórios” que assegurem que qualquer redução da capacidade construtiva numa parte da cidade é compensada com um aumento dessa capacidade construtiva noutra parte da cidade. Isto permitirá, no mínimo, manter a capacidade construtiva total e assegurar que os preços da habitação e do imobiliário em geral não aumentam pela via de restrições regulatórias da oferta.
+
+### 9.7. Podemos proteger os mais vulneráveis das flutuações do mercado
+
+Tal como previsto aquando da reforma do mercado de arrendamento de 2012, deverá ser o Estado e não os senhorios a prestar apoio social a residentes que não possam suportar valores de arrendamento de mercado.
+
+#### 9.7.1. Arrendamento de cariz social
+
+Sendo necessário prosseguir e incrementar os programas sociais de renda apoiada com base no rendimento das famílias (habitação social), é imprescindível a implementação de um novo modelo de negócio vocacionado para o mercado de arrendamento de cariz social, que tenha por objetivo a moderação no valor das rendas em função do número de imóveis colocados no mercado.
+
+#### 9.7.2. Podemos dar rendimento aos mais vulneráveis através de operação de venda antecipada de imóvel
+
+Em breve, os novos seniores que chegarão à reforma serão detentores de um património imobiliário (a sua casa). Porém a sua reforma será magra e a poupança de uma vida foi investida nesse mesmo património imobiliário.
+
+A solução é muitas vezes escolher entre viver com dificuldade, mantendo a casa; ou vender a casa e ter algum ganho financeiro.
+
+Iremos assim promover o necessário enquadramento para facilitar a criação de fundos de antecipada compra de imoveis com direito de usufruto dos atuais proprietários. Essa antecipação de capital pode ser total ou parcial.
+
+### 9.8. Fiscalidade amiga do arrendamento
+
+Se não tornarmos mais competitiva a fiscalidade aplicável ao arrendamento, de pouco servirão as políticas públicas de habitação. Propomos assim uma redução da taxa de IRS aplicada ao arrendamento tradicional para 23%, que constituirá um incentivo relevante para que os proprietários de imóveis vejam no arrendamento uma boa alternativa. Igualmente, isentaremos os contratos de arrendamento de imposto de selo.
+
+## 10. ENVELHECER ATIVAMENTE É UMA LIBERDADE
+
+Com uma população cada vez mais envelhecida, Portugal precisa de começar a encarar o desafio de se preparar para um envelhecimento
+mais rico, mais ativo e com mais opções para os portugueses.
+
+### 10.1. Falta uma verdadeira Estratégia para um Envelhecimento Ativo
+
+Aprovaremos uma Estratégia Nacional para um Envelhecimento Ativo e para a Longevidade, que defina políticas públicas multissetoriais, e respetivas metas e objetivos, qualitativos e quantitativos.
+
+### 10.2. Podemos suavizar a entrada na reforma
+
+Proporemos em sede de concertação social que, caso o trabalhador o pretenda, possa optar por trabalhar a tempo parcial, num período equivalente a metade do seu tempo normal de trabalho, nos últimos dois anos anteriores à idade legal de reforma.
+
+### 10.3. Queremos criar incentivos à contratação
+
+Vamos criar incentivos adicionais de apoio à contratação de desempregados com mais de 55 anos, nomeadamente a dispensa do pagamento de contribuições para a Segurança Social relativas a esses trabalhadores por um período de 36 meses, quando inscritos no centro de emprego há, pelo menos, 90 dias.
+
+### 10.4. Um plano de gestão de carreira
+
+Iniciaremos, em sede de Concertação Social, a discussão para a criação do Plano de Gestão de Carreira em função da idade dos trabalhadores que inclua, nomeadamente, formação em novas qualificações e atualização de qualificações técnicas, envolvimento dos trabalhadores mais velhos em programas de tutoria/mentoring e ações de sensibilização para o planeamento da reforma.
+
+### 10.5. O voluntariado sénior pode ser muito mais dinamizado
+
+Valorizamos o voluntariado como fator de humanização, realização pessoal e coesão social. Na sua definição mais simples, é a boa vontade em ação. Queremos incentivar o desenvolvimento de iniciativas de voluntariado sénior.
+
+## 11. UMA CULTURA DE RESPONSABILIZAÇÃO DAS EMPRESAS
+
+Precisamos de recompensar aqueles que respondem aos desafios de hoje. Não acreditamos numa política de imposição de critérios políticos ou ideológicos nas empresas – preferimos sinalizar e incentivar boas práticas, para que outras lhes sigam o exemplo.
+
+Para o CDS, o Estado deve trabalhar em permanente parceria com as comunidades, com o setor social e o privado, de forma a criar condições para que todas as responsabilidades não sobrecarreguem nenhum dos lados; nenhuma ideologia pode justificar a eliminação de nenhum dos lados da equação.
+
+### 11.1. Premiar as empresas que se distinguem
+
+Propomos a criação de um prémio que distinga as melhores práticas em Portugal, da competência de um organismo no âmbito do Ministério da Economia.
+
+### 11.2. Valorizar as empresas que se certificam
+
+A certificação das empresas com a Norma Portuguesa, com a EFR, ou outras similares, desde que atribuídas por entidades certificadas pelo IPAC - Instituto Português de Acreditação, deve ser considerada como um critério de majoração nas candidaturas a apoios públicos, nacionais e comunitários.
+
+### 11.3. Queremos alargar o âmbito dos Vales sociais
+
+Os vales sociais têm por finalidade potenciar, através da constituição de fundos, o apoio das entidades empregadoras aos seus trabalhadores. Introduziremos os Vales saúde/cuidado, destinados ao pagamento de despesas de saúde, serviços de apoio social, nomeadamente em hospitais, clínicas médicas, farmácias, internamento em lares, centros de dia, apoio domiciliário, fisioterapia e outras despesas de assistência médica.
+
+## 12. UM CONTRATO DE TRANSPARÊNCIA NA SEGURANÇA SOCIAL
+
+A incerteza quanto ao futuro, a dúvida sobre que pensão, se alguma, nos espera, contamina as opções de vida desde cedo. E se há área profundamente afetada pela queda dramática da natalidade é a da segurança social, já que o nosso sistema, de repartição, necessita, em termos gerais, de ter mais pessoas a trabalhar e a descontar do que o número de pessoas a receber pensões.
+
+Não podemos ignorar, por isso, que existe um problema de sustentabilidade a médio prazo do nosso sistema, dada a queda da natalidade consequentemente do número de contribuições – o que aliás torna o nosso sistema muito vulnerável a crises.
+
+Entendemos que a reforma da segurança social seja uma das mais importantes e adiadas da política portuguesa. Sabemos que é uma tema essencial, sensível, e por isso sabemos que é necessário consensualizar qualquer reforma nesta matéria.
+
+O CDS quer mostrar aos portugueses que, em assuntos de extrema relevância, como este da Segurança Social, é possível chegar a consensos. Isso não se faz apresentando propostas que já sabemos irem ser chumbadas. Faz-se apresentando propostas que possam gerar consenso, que possam ser um começo.
+
+É isso que procuramos, apresentando uma proposta de Contrato de Transparência na Segurança Social, que atue em três frentes: mais informação, mais poupança e mais autonomia.
+
+Isto não significa que o CDS esgote aqui tudo o que pensa sobre a Segurança Social nem que entenda que não há mais nada a mudar. Mas este assunto tem uma importância tal na vida dos portugueses que queremos mostrar que, quando há genuína vontade, os partidos políticos podem começar a trabalhar passo a passo.
+
+### 12.1. Mais informação sobre a nossa pensão – o Sistema de Informação para a Reforma
+
+Cada pessoa tem o direito a ser informado periodicamente da estimativa sobre o montante de pensão que lhe caberá, para que possa
+planear a sua vida. 
+
+Essa informação não só tem de estar disponível a todo o momento, como tem de ser enviada anualmente a cada beneficiário (com toda a informação sobre o carácter estimativo da informação) Para isso, há que criar contas individuais virtuais, que permitem ao Estado transmitir essa informação.
+
+### 12.2. Mais poupança – o Suplemento para a Reforma
+
+Com a informação que é dada através do Sistema de Informação para a Reforma, cada pessoa pode tomar melhores e mais decisões de
+aforro, seja no público, no privado ou no mutualista.
+
+E para isso propomos o reforço do funcionamento do atual sistema de capitalização, tornando-o mais atrativo e mais ágil, através da criação de um Suplemento de Reforma.
+
+O Suplemento de Reforma é criado por defeito no regime público de capitalização e o montante das contribuições é creditado numa conta individual do aderente. No entanto, o trabalhador pode escolher entidades privadas ou mutualistas, se assim o desejar.
+
+Se quiser aderir a esse Suplemento, o trabalhador desconta de forma voluntária e automática para o sistema de capitalização (1% por defeito, mais se quiser).
+
+A entidade empregadora pode realizar também cotizações desde que esteja em funcionamento a anunciada conta-corrente entre o Estado
+e as Empresas, uma vez que pretendemos garantir que o exercício desta opção pelas empresas é neutra em termos de custos: resulta da nossa proposta essa neutralidade.
+
+Esta proposta é mais atrativa do que o atual sistema porque este regime deverá ter benefícios fiscais.
+
+Para o trabalhador as suas contribuições serão abatidas em matéria colectável para efeitos do IRS. Para as entidades empregadoras há direito a um benefício em sede fiscal, permitindo uma compensação através da utilização da conta corrente entre o Estado e as entidades empregadoras, que deve ser consensualizado com os restantes partidos.
+
+Com esta proposta reforçamos a parcela de capitalização, indo ao encontro da necessidade de dar mais segurança às pessoas, e criamos um suplemento de reforma.
+
+### 12.3. Mais autonomia - o Instrumento de Planeamento para a Reforma
+
+Havendo um instrumento de capitalização, uma conta que pertence a cada trabalhador, é justo e legítimo que esse trabalhador possa, uma vez gozando a reforma, decidir de que forma quer receber esse montante que foi capitalizado: se tudo de uma vez, se mais para a frente, se de forma progressiva ou regressiva.
+
+# PRONTOS PARA VENCER NUM MUNDO GLOBAL
+
+Se o modelo socialista de crescimento que Portugal tem seguido nos últimos 25 anos fosse bom, Portugal não estaria, como está ainda, na cauda da Europa em quase todos os indicadores relevantes de crescimento, de competitividade, de produtividade, de inovação, de adaptação ao futuro da União Europeia.
+
+Não faz por isso sentido que continuemos a seguir esse modelo, que tem vindo a ser pensado e desenhado e implementado pelos socialistas, que governaram durante 17 dos últimos 25 anos, deixando ao PSD e ao CDS a tarefa de lidar com as crises e a pré-bancarrota.
+
+## 1. VIVEMOS NUM MUNDO EM MUDANÇA CONSTANTE E IMPREVISÍVEL
+
+Durante anos, o modelo socialista esteve ao serviço de uma máquina despesista, faraónica.
+
+Agora, está ao serviço de um imobilismo que não aceita a mudança, que não quer preparar-se para nenhum dos desafios do Mundo global, que prefere esperar para ver.
+
+Sucede que não podemos ignorar que vivemos num Mundo em mudança permanente e imprevisível, e que isso nos obriga a mudar, a reformar, a preparar, a antecipar, a apetrechar.
+
+Uma economia cada vez mais global e veloz, com empresas que abrem e fecham a uma rapidez nunca vista, com empregos que se deslocalizam velozmente, profissões que se extinguem e outras que se criam.
+
+Uma economia cada vez mais digital, a exigir novas competências, muito mais aberta à concorrência e ao novo.
+
+Uma enorme imprevisibilidade comercial, negocial, financeira, e até política, em que países abandonam a União e novas barreiras alfandegárias se criam quando antes se deitavam abaixo.
+
+Esta é a descrição do Mundo em que vivemos, um Mundo cada vez mais veloz e imprevisível, com milhões de problemas e milhões de oportunidades.
+
+Não vale a pena fingir que o Mundo é diferente, nem sequer vale a pena glorificar um passado que ficou para trás. O que temos de fazer é agir.
